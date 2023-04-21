@@ -10,6 +10,8 @@ Respect free sharing, it's meant to be accessible to everyone!
 
 For any request or question, you can contact me by adding me on Discord: Heros#5092
 
+Thx to KadDarem for some tips #Kad | MxWay#0621
+
 
 - You can also modifiy any settings, there is some comments to help you !
 
