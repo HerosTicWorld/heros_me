@@ -16,5 +16,5 @@ Thx to KadDarem for some tips #Kad | MxWay#0621
 - You can also modifiy any settings, there is some comments to help you !
 
 <img src=https://zupimages.net/up/23/16/yuaf.png>
-<img src=https://zupimages.net/up/23/16/p57z.png>
+<img src=[https://zupimages.net/up/23/16/p57z.png](https://zupimages.net/viewer.php?id=23/16/h1vv.png)>
 <img src=https://zupimages.net/up/23/16/ajz6.png>
