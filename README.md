@@ -15,5 +15,4 @@ For any request or question, you can contact me by adding me on Discord: Heros#5
 
 <img src=https://zupimages.net/up/23/16/yuaf.png>
 <img src=https://zupimages.net/up/23/16/p57z.png>
-<img src=https://zupimages.net/up/23/16/4hdd.png>
 <img src=https://zupimages.net/up/23/16/ajz6.png>
