@@ -1,5 +1,7 @@
 ----------------------------------
---      Discord: #Heros#5092    --
+--      Any problem or any question ?
+-- Discord: #heros0000
+-- https://discord.gg/FK3PGDyZmF
 ----------------------------------
 
 author "Heros for HerosTicWorld©"
